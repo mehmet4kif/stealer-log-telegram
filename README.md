@@ -6,57 +6,56 @@ Kullanıcı Sayısı: 4045<br>
 Adres:  https://t.me/cvv190_cloud <br>
 Paylaşılan Adet: 457 <br>
 
-NIKE CLOUD FREE 
-Admin: @sup_nike 
-Kullanıcı Sayısı: 4768  
-Adres: https://t.me/nikecloudlogs 
-Paylaşılan Adet: 191 
+NIKE CLOUD FREE <br>
+Admin: @sup_nike <br>
+Kullanıcı Sayısı: 4768  <br>
+Adres: https://t.me/nikecloudlogs <br>
+Paylaşılan Adet: 191 <br>
 
-CLOUD WLFR PROJECT 
-Admin: @altair_sup 
-Kullanıcı Sayısı: 6301 
-Adres: https://t.me/WlfrCloud 
-Paylaşılan Adet: 423 
+CLOUD WLFR PROJECT <br>
+Admin: @altair_sup <br>
+Kullanıcı Sayısı: 6301 <br>
+Adres: https://t.me/WlfrCloud <br>
+Paylaşılan Adet: 423 <br>
+<br>
+DAISY CLOUD [NEW] <br>
+Admin: @NEW_DAISYCLOUDADMIN <br>
+Kullanıcı Sayısı: 5667 <br>
+Adres: https://t.me/+uuz8-qLUNeU2ZmI0 <br>
+Paylaşılan Adet: 301 <br>
 
-DAISY CLOUD [NEW] 
-Admin: @NEW_DAISYCLOUDADMIN 
-Kullanıcı Sayısı: 5667 
-Adres: https://t.me/+uuz8-qLUNeU2ZmI0 
-Paylaşılan Adet: 301 
+ATM LOGS <br>
+Admin: @ATM_adm <br>
+Kullanıcı Sayısı: 1792 <br>
+Adres: https://t.me/ATM_LOGS <br>
+Paylaşılan Adet: 194 <br>
 
-ATM LOGS 
-Admin: @ATM_adm 
-Kullanıcı Sayısı: 1792 
+TORLOGS <br>
+Admin: @TORUSw <br>
+Kullanıcı Sayısı: 7639 <br>
+Adres: https://t.me/tor_log <br>
+Paylaşılan Adet: 1092 <br>
  
-  
-Adres: https://t.me/ATM_LOGS 
-Paylaşılan Adet: 194 
-TORLOGS 
-Admin: @TORUSw 
-Kullanıcı Sayısı: 7639 
-Adres: https://t.me/tor_log 
-Paylaşılan Adet: 1092 
- 
-BREAKİNG LOGS \\\\\  
-Admin: - 
-Kullanıcı Sayısı: 3615 
-Adres: https://t.me/stake_logs 
-Paylaşılan Adet: 276 
+BREAKİNG LOGS \\\\\  <br>
+Admin: - <br>
+Kullanıcı Sayısı: 3615 <br>
+Adres: https://t.me/stake_logs <br>
+Paylaşılan Adet: 276 <br>
+<br>
+0XLOGS | FREE LOGS CLOUD <br>
+Admin: @xCloud_support <br>
+Kullanıcı Sayısı: 1973 <br>
+Adres: https://t.me/xl0gs <br>
+Paylaşılan Adet: 116 <br>
 
-0XLOGS | FREE LOGS CLOUD 
-Admin: @xCloud_support 
-Kullanıcı Sayısı: 1973 
-Adres: https://t.me/xl0gs 
-Paylaşılan Adet: 116 
+EVERLASTİNG CLOUD <br>
+Admin: @Everlasting_admin <br>
+Kullanıcı Sayısı: 5922 <br>
+Adres: https://t.me/Everlasting_Cloud <br>
+Paylaşılan Adet: 327 <br>
 
-EVERLASTİNG CLOUD 
-Admin: @Everlasting_admin 
-Kullanıcı Sayısı: 5922 
-Adres: https://t.me/Everlasting_Cloud 
-Paylaşılan Adet: 327 
-
-HELLOKİTTY | CLOUD FREE 
-Admin: @HelloKitty_Suport 
-Kullanıcı Sayısı: 7565 
-Adres: https://t.me/HelloKittyCloud 
-Paylaşılan Adet: 282 
+HELLOKİTTY | CLOUD FREE <br>
+Admin: @HelloKitty_Suport <br>
+Kullanıcı Sayısı: 7565 <br>
+Adres: https://t.me/HelloKittyCloud <br>
+Paylaşılan Adet: 282 <br>
