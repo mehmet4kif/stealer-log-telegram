@@ -1,10 +1,10 @@
 # stealer-log-telegram
 
 CVV190 CLOUD | FREE LOGS <br>
-Admin: @CVV190_ADMIN 
-Kullanıcı Sayısı: 4045 ( 
-Adres:  https://t.me/cvv190_cloud 
-Paylaşılan Adet: 457 
+Admin: @CVV190_ADMIN <br>
+Kullanıcı Sayısı: 4045<br>
+Adres:  https://t.me/cvv190_cloud <br>
+Paylaşılan Adet: 457 <br>
 
 NIKE CLOUD FREE 
 Admin: @sup_nike 
