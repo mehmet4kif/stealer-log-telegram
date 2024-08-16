@@ -1,5 +1,7 @@
 # stealer-log-telegram
 
+### Dikkat! Eğitim için toplanmıştır, kullanımı kişinin kendi sorumluluğundadır.
+
 CVV190 CLOUD | FREE LOGS <br>
 Admin: @CVV190_ADMIN <br>
 Kullanıcı Sayısı: 4045<br>
